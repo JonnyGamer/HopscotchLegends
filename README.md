@@ -1,9 +1,6 @@
 # HopscotchLegends
 List of incredible projects
 
-# HopscotchLegends
-List of incredible projects
-
 Please make a pull request if you wish to add on to this.
 
 Valgo⚡️⚡️⚡️ (Since April 2015)
