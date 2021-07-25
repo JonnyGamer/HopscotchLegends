@@ -1,7 +1,7 @@
 # HopscotchLegends
 List of incredible projects
 
-Thanks to Petrichor, we have a [complete list](https://github.com/JonnyGamer/HopscotchLegends/blob/main/excellent.md) of all the projects with 1000+ likes (as of OCtober, 10th, 2020)
+Thanks to Petrichor, we have a [complete list](https://github.com/JonnyGamer/HopscotchLegends/blob/main/excellent.md) of all the projects with 1000+ likes (as of October, 10th, 2020)
 
 Please make a pull request if you wish to add on to this.
 
