@@ -3,6 +3,8 @@ List of incredible projects
 
 Please make a pull request if you wish to add on to this.
 
+---
+
 Valgo⚡️⚡️⚡️ (Since April 2015)  
 	Made 21 incredible projects within _ years  
 	Total: 134.7K Likes (54.2K not from Kaleidocosmos)  
@@ -28,6 +30,8 @@ Valgo⚡️⚡️⚡️ (Since April 2015)
 - [Beatronix Alpha](https://c.gethopscotch.com/p/qdjzmda) 3.7K
 - [Beauty Salon (My sister's request)](https://c.gethopscotch.com/p/68vtf9r) 1.0K
 
+---
+
 PurpleHawk (since September 2014)  
 	Made 8 incredible projects within 4 months  
 	(From 2015-08-01 to 2015-11-24)  
@@ -42,7 +46,7 @@ PurpleHawk (since September 2014)
 - [3D Spinning Cube](https://c.gethopscotch.com/p/xh5uhrgn4) 2.3K
 - [Globe generator & Drawing Pad got together](https://c.gethopscotch.com/p/xexk2wuio) 4.1K
 
-
+---
 
 Other famous people:
 - oio
