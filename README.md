@@ -1,6 +1,8 @@
 # HopscotchLegends
 List of incredible projects
 
+I'm going to categorize all creators/projects with 1,000+ likes
+
 Please make a pull request if you wish to add on to this.
 
 ---
