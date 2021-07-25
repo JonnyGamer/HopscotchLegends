@@ -1,11 +1,13 @@
 # HopscotchLegends
 List of incredible projects
 
-I'm going to categorize all creators/projects with 1,000+ likes
+Thanks to Petrichor, we have a [complete list](https://github.com/JonnyGamer/HopscotchLegends/blob/main/excellent.md) of all the projects with 1000+ likes (as of July, 25th, 2021)
 
 Please make a pull request if you wish to add on to this.
 
 ---
+
+# Categorized by Creator
 
 Valgo⚡️⚡️⚡️ (Since April 2015)  
 	Made 21 incredible projects within _ years  
