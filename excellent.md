@@ -252,7 +252,7 @@
 - [Drawing Utencils](https://c.gethopscotch.com/p/xid2r98jj) by RedKoαℓα🐨 3536 likes
 - [Hexahedonism](https://c.gethopscotch.com/p/y7l017lli) by Rawrbear 3531 likes
 - [Dentist ](https://c.gethopscotch.com/p/ycth6walp) by PleasantSeashelle 3524 likes
-- [Windblade! (Sry]( I've been reading a lot of Transformers Comics lately)) by SuperGirl3Acer https://c.gethopscotch.com/p/y1elv7gjy likes
+- [Windblade! (Sry, I've been reading a lot of Transformers Comics lately)](https://c.gethopscotch.com/p/y1elv7gjy) by SuperGirl3Acer 3500 likes
 - [Terraria Guy](https://c.gethopscotch.com/p/xfmmuwncq) by Fodo_Bagans 3500 likes
 - [Bus Stop](https://c.gethopscotch.com/p/xqu3583p6) by randomowlsLC 3495 likes
 - [Hopscotch Holiday Contest!](https://c.gethopscotch.com/p/xo0sql2bi) by The Hopscotch Team 3495 likes
@@ -470,7 +470,7 @@
 - [House Designer 2](https://c.gethopscotch.com/p/z6zte8cvd) by Panda Studios 2325 likes
 - [Outfit Creator! (Fixed)](https://c.gethopscotch.com/p/yvdamvaz1) by My_Pizza 2324 likes
 - [Hidden objects](https://c.gethopscotch.com/p/ygp1xyay7) by My Name Ⅎ∩Nʞ⅄ 9ᄐ 2323 likes
-- [Kick the Goomba]( hit the plant V1.0) by Fastmike https://c.gethopscotch.com/p/zb46k5jq5 likes
+- [Kick the Goomba, hit the plant V1.0](https://c.gethopscotch.com/p/zb46k5jq5) by Fastmike 2320 likes
 - [Just paint](https://c.gethopscotch.com/p/z7d7g9u3c) by My Name Ⅎ∩Nʞ⅄ 9ᄐ 2319 likes
 - [Duel Stars!](https://c.gethopscotch.com/p/xx9z2ksuh) by SmilingSnowflakes 2319 likes
 - [3D Diamond 💎](https://c.gethopscotch.com/p/108isr3bve) by Valgo⚡️⚡️⚡️ 2318 likes
@@ -954,7 +954,7 @@
 - [Pad update](https://c.gethopscotch.com/p/ym4wrkw1h) by ArtsyCoders🖌 1346 likes
 - [Toast maker really really awesome](https://c.gethopscotch.com/p/xhuwwu6hl) by The Gnome! 1344 likes
 - [School season 2 episode 1](https://c.gethopscotch.com/p/xhey51z0o) by Ihasfluffycupcakes 1344 likes
-- [Happy Birthday]( Hopscotch!) by JessieCA https://c.gethopscotch.com/p/zehzio1re likes
+- [Happy Birthday, Hopscotch!](https://c.gethopscotch.com/p/zehzio1re) by JessieCA 1341 likes
 - [Summer Acticity Book! (UNFINISHED)](https://c.gethopscotch.com/p/y2urawkqx) by EnchantedHopscotcher 1340 likes
 - [Invisible Drawing game! ](https://c.gethopscotch.com/p/ykridmhel) by TiTanium* 1339 likes
 - [Emoji painter ](https://c.gethopscotch.com/p/yyw9wcaty) by My Name Ⅎ∩Nʞ⅄ 9ᄐ 1338 likes
@@ -1254,7 +1254,7 @@
 - [#Sunset Remix](https://c.gethopscotch.com/p/yuurybjp7) by EmeraldButterfly!! 1038 likes
 - [Flappy Bird](https://c.gethopscotch.com/p/ylzeiyqet) by DylanBarrett 1038 likes
 - [Star fighter](https://c.gethopscotch.com/p/zahvwdt49) by G-man2011 1035 likes
-- [:]](https://c.gethopscotch.com/p/yozrb6u7l) by ArtsyCoders🖌 1035 likes
+- [:\]](https://c.gethopscotch.com/p/yozrb6u7l) by ArtsyCoders🖌 1035 likes
 - [3D Piramid](https://c.gethopscotch.com/p/yevihxcfp) by leonkhangzora 1035 likes
 - [T H O R N (chapter 2)](https://c.gethopscotch.com/p/xs47u4yxw) by YogiLC 1035 likes
 - [Sports day](https://c.gethopscotch.com/p/zo4rpgu8h) by Nathan LN 1034 likes
