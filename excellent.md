@@ -39,7 +39,7 @@
 - [Cooking Game 😋](https://c.gethopscotch.com/p/xs4f9erkb) by Tori the Crafter 💛 8962 likes
 - [Pokémon journey ](https://c.gethopscotch.com/p/zsx637kjf) by Wizardabs 8908 likes
 - [MONSTER OCTOPUS BALL](https://c.gethopscotch.com/p/xka1wj9ii) by Etalix 8888 likes
-- [Minigames by Awesome_E](https://c.gethopscotch.com/p/xe4a5cewq) by Awesome_E 8464 likes
+- [Minigames](https://c.gethopscotch.com/p/xe4a5cewq) by Awesome_E 8464 likes
 - [Emojitron 4.0](https://c.gethopscotch.com/p/xksf4sfo1) by Mashed Potamoes 8239 likes
 - [Twisty Arrow](https://c.gethopscotch.com/p/zy8keq2nt) by XAMANION STUDIOS 8189 likes
 - [Spider Stomp](https://c.gethopscotch.com/p/xpysr1ad5) by MZamora 7896 likes
@@ -94,7 +94,7 @@
 - [A Medieval RPG: Story Mode](https://c.gethopscotch.com/p/xwlumndbq) by Coding Tunes 5805 likes
 - [The Fish Game II](https://c.gethopscotch.com/p/yb5wxunrc) by JtG 5749 likes
 - [Comic Maker!](https://c.gethopscotch.com/p/xu8knzcow) by Bananadog 5709 likes
-- [Yantris-2 by oio](https://c.gethopscotch.com/p/xqzhrq7fe) by oio 5686 likes
+- [Yantris-2](https://c.gethopscotch.com/p/xqzhrq7fe) by oio 5686 likes
 - [Canoe Adventure! 🚣🏼](https://c.gethopscotch.com/p/xcr2vj412) by MagmaPOP 5647 likes
 - [My Pet](https://c.gethopscotch.com/p/yyfjxrlfl) by CottonC4ndy 5587 likes
 - [THE LAZOR MAZE (Part 1)](https://c.gethopscotch.com/p/xl4f4u98q) by AmazingGamesZ 5554 likes
@@ -113,7 +113,7 @@
 - [Angry Birds!](https://c.gethopscotch.com/p/zfsxy9x7o) by Creations of a Noob 5205 likes
 - [Make Lemonade!](https://c.gethopscotch.com/p/10azohyo6s) by iOG 5200 likes
 - [Walkman](https://c.gethopscotch.com/p/xjx4nvhqn) by PurpleHawk 5179 likes
-- [DIMoRPHio v2.1 by oio](https://c.gethopscotch.com/p/xh1inscw6) by oio 5154 likes
+- [DIMoRPHio v2.1](https://c.gethopscotch.com/p/xh1inscw6) by oio 5154 likes
 - [Cow Tapper v1.8](https://c.gethopscotch.com/p/hu1u-yd) by BestesColesNZ 5148 likes
 - [Illuminati tester 5](https://c.gethopscotch.com/p/xnxvuu93z) by hansonnoah 5124 likes
 - [Star Rider v2.3](https://c.gethopscotch.com/p/xqyksivyo) by MillerTIME! 5116 likes
@@ -197,7 +197,7 @@
 - [Gravity Cube! v1.2](https://c.gethopscotch.com/p/xkemwtz2d) by JonnyGamer 4086 likes
 - [Fireworks!](https://c.gethopscotch.com/p/xtfypyr4h) by MPMP123 4083 likes
 - [Street Mayhem v0.1: By RhysFamous](https://c.gethopscotch.com/p/xhaomd3pe) by RhysFamous™ 4063 likes
-- [TrippyTouch v2.1.1 (Oneiroi) by oio](https://c.gethopscotch.com/p/xiq6kx7jc) by oio 4060 likes
+- [TrippyTouch v2.1.1 (Oneiroi)](https://c.gethopscotch.com/p/xiq6kx7jc) by oio 4060 likes
 - [#Challenge! Build a Robot 🤖](https://c.gethopscotch.com/p/xm365j22s) by Tori the Crafter 💛 4027 likes
 - [Rainbow Twister!](https://c.gethopscotch.com/p/xiibk13od) by SoggyWaffles😨 4015 likes
 - [Draw your own rail!](https://c.gethopscotch.com/p/ytua1cvi6) by The Project Makers❌ 3983 likes
@@ -227,14 +227,14 @@
 - [Pug Pixel Art C:](https://c.gethopscotch.com/p/y3xb0y703) by AQ3033 3693 likes
 - [Color arranger](https://c.gethopscotch.com/p/xv50a6uy9) by PurpleHawk 3691 likes
 - [A Sheep Game :D](https://c.gethopscotch.com/p/ycx4ce5f2) by Creations of a Noob 3688 likes
-- [TrippyTouch v1.4 by oio](https://c.gethopscotch.com/p/xipyvkops) by oio 3675 likes
+- [TrippyTouch v1.4](https://c.gethopscotch.com/p/xipyvkops) by oio 3675 likes
 - [Paint a Pumpkin!](https://c.gethopscotch.com/p/y9uaigb9j) by Caramel Puffin 3674 likes
 - [UnDogeTale](https://c.gethopscotch.com/p/y71eqjwpl) by Creative Coder 3672 likes
 - [#MyRollerCoaster ](https://c.gethopscotch.com/p/yzukwvkua) by EmeraldButterfly!! 3671 likes
 - [Welcome to Hopscotch](https://c.gethopscotch.com/p/z0a6wvqah) by FluffyMice! 3667 likes
 - [Nature world](https://c.gethopscotch.com/p/xivrdajmr) by Kluni 3666 likes
 - [Poring Dodge!](https://c.gethopscotch.com/p/xx9jjmv2m) by TheAnonymousPugLoaf🍞 3648 likes
-- [E-Pad by Awesome_E!](https://c.gethopscotch.com/p/xkxg62xgs) by Awesome_E 3648 likes
+- [E-Pad](https://c.gethopscotch.com/p/xkxg62xgs) by Awesome_E 3648 likes
 - [Rainbow 5!!!](https://c.gethopscotch.com/p/xim2nysk4) by MonkeyPatriot 3645 likes
 - [Space is key v2](https://c.gethopscotch.com/p/10a1gt9zjq) by DanishBeast5708 3643 likes
 - [Box Jumper](https://c.gethopscotch.com/p/xwdu05sy4) by My Name Ⅎ∩Nʞ⅄ 9ᄐ 3640 likes
@@ -443,12 +443,12 @@
 - [Astral: Progress (v.1.0.0)](https://c.gethopscotch.com/p/xxakvwbz0) by kenlauescuadro 2432 likes
 - [Hot air balloon!](https://c.gethopscotch.com/p/xregabpft) by Awsome Johnson 2431 likes
 - [Rolling (WIP)](https://c.gethopscotch.com/p/y95se5ogn) by ThatRandomGuy8192 2424 likes
-- [ co.](Ice Cream Maker!) by Decode https://c.gethopscotch.com/p/zgm5kuq3n likes
+- [Ice Cream Maker!](https://c.gethopscotch.com/p/zgm5kuq3n) by Decode , co. 2423 likes
 - [Cookie Clicker V0.2.0](https://c.gethopscotch.com/p/yf2fo9fea) by Mr Blah Blah 2422 likes
 - [Just playing free to use](https://c.gethopscotch.com/p/xsarugfv7) by My Name Ⅎ∩Nʞ⅄ 9ᄐ 2420 likes
 - [Fox](https://c.gethopscotch.com/p/ye44gvu7h) by Katronus 2407 likes
 - [Ghost?](https://c.gethopscotch.com/p/y90gdhhcx) by DA-BEAST! 2405 likes
-- [New update! Skills]( duplicate drafts) by The Hopscotch Team  & more! likes
+- [New update! Skills, duplicate drafts, & more!](https://c.gethopscotch.com/p/yajvq0i7i) by The Hopscotch Team 2395 likes
 - [R.I.P. Harambe](https://c.gethopscotch.com/p/y770ysp5f) by FrumpyEwok 2395 likes
 - [Feed Snaxwell](https://c.gethopscotch.com/p/y7lytqw5s) by jonmarkwilcox 2389 likes
 - [I made this on my vaca!](https://c.gethopscotch.com/p/y5pijxcyp) by Book Geek 2383 likes
@@ -695,7 +695,7 @@
 - [Llama pixel art](https://c.gethopscotch.com/p/zb2q2a94x) by sophia🌈4️⃣✝️ 1736 likes
 - [Mini(on)Game: Banana catch V1.0](https://c.gethopscotch.com/p/zaolcg31f) by Fastmike 1732 likes
 - [Learn Programming with Robo beta 1.2 (SOUND!)](https://c.gethopscotch.com/p/xit9l2vlk) by Bookdevourer 1730 likes
-- [Get Through (ADDICTIVE]( FUN) by The Utopia  AND LIT) with a hint of rage Remix likes
+- [Get Through (ADDICTIVE, FUN, AND LIT) with a hint of rage Remix](https://c.gethopscotch.com/p/ypdtceeas) by The Utopia 1727 likes
 - [Baseball!](https://c.gethopscotch.com/p/yj7y7fg6n) by Multus 1727 likes
 - [Pulsing Pad glitch :0](https://c.gethopscotch.com/p/ypas9l0iq) by KaFeJe 1725 likes
 - [Animated Chick! 3.0](https://c.gethopscotch.com/p/ymf5kl0of) by PineappleArt🏳️‍🌈 1717 likes
@@ -757,7 +757,7 @@
 - [Ghost Simulater](https://c.gethopscotch.com/p/xicav1a8y) by KillerCroc🐊 1611 likes
 - [HHC17: Halloween salon!](https://c.gethopscotch.com/p/z1uj7ppx3) by TwitchingFrench Fry🍟😋 1610 likes
 - [THE DODGER! 🎮](https://c.gethopscotch.com/p/yt0t9dns4) by Waterflame! 1610 likes
-- [HSB(24](#) by PurpleHawk #) Color Chart likes
+- [HSB(24,#,#) Color Chart](https://c.gethopscotch.com/p/xupu5994a) by PurpleHawk 1609 likes
 - [3-d draw (different emojis)](https://c.gethopscotch.com/p/xgsycy214) by Dream Catcher💭 1608 likes
 - [Sonic demo](https://c.gethopscotch.com/p/z8jbn61yc) by Orion enjoyment 1607 likes
 - [Colored Wheel Game](https://c.gethopscotch.com/p/yiw0liwyn) by DylanBarrett 1607 likes
@@ -848,7 +848,7 @@
 - [Doodlejump (sound effects added!)](https://c.gethopscotch.com/p/xemn0c9pu) by Bear99 1486 likes
 - [Joy G. Biv](https://c.gethopscotch.com/p/ynh7w1bb8) by Caramel Puffin 1485 likes
 - [So true. (Trail)](https://c.gethopscotch.com/p/yphzdog14) by Skybolt 1484 likes
-- [Iron man (First Draft) By:DiegotheBeast]( and help from Fodo_Baggins) by WeinerDaBeast https://c.gethopscotch.com/p/xicpzryii likes
+- [Iron man (First Draft) By:DiegotheBeast, and help from Fodo_Baggins](https://c.gethopscotch.com/p/xicpzryii) by WeinerDaBeast 1479 likes
 - [Colors (platformer)](https://c.gethopscotch.com/p/10xgjptswf) by ApplePIE🥧 1479 likes
 - [Emoji Puzzles](https://c.gethopscotch.com/p/z5j4v2pff) by Spolarium 1479 likes
 - [Escape the cell ⛓](https://c.gethopscotch.com/p/z7m72lxoi) by The real 1246 1478 likes
@@ -939,7 +939,7 @@
 - [Drop BETA](https://c.gethopscotch.com/p/y3lkz23wq) by TitanBoy 1366 likes
 - [Hunt the Ghost](https://c.gethopscotch.com/p/y0ktru2qj) by 000HVH0068685780000000H 1365 likes
 - [Coaster Creator v0.0.5 Beta](https://c.gethopscotch.com/p/ykjbu8p32) by The Crafty Painter 1362 likes
-- [The ;] Face](https://c.gethopscotch.com/p/y5tz407v7) by DA-BEAST! 1361 likes
+- [The ;\] Face](https://c.gethopscotch.com/p/y5tz407v7) by DA-BEAST! 1361 likes
 - [Pixel Mega Charizard X](https://c.gethopscotch.com/p/zh10css4l) by Coder_DuDe 1359 likes
 - [Catch the Snowflakes!](https://c.gethopscotch.com/p/yrpxrtczt) by Da Magical Fridge 1359 likes
 - [Nature's beauty](https://c.gethopscotch.com/p/yhzrcdwnx) by Kay Kat 1355 likes
@@ -1116,7 +1116,7 @@
 - [Hour of Code 2018](https://c.gethopscotch.com/p/zuxdamog2) by The Hopscotch Team 1188 likes
 - [Spinning BG! ](https://c.gethopscotch.com/p/yqith7pa6) by ChickenNuggetCoder❌back 1188 likes
 - [Weight Lifting Simulator (v1.0.2)](https://c.gethopscotch.com/p/z3uds5az5) by riders294 1185 likes
-- [ co.](Animated Fish Tank Trail Art) by Decode https://c.gethopscotch.com/p/zbpk8vb9g likes
+- [Animated Fish Tank Trail Art](https://c.gethopscotch.com/p/zbpk8vb9g) by Decode , co. 1184 likes
 - [Pie Face!v1.3](https://c.gethopscotch.com/p/z4hynla6n) by OfficialHopscotchRemixer 1184 likes
 - [Jetpack Joyride](https://c.gethopscotch.com/p/xgnuz1vvr) by Lucas9203 1184 likes
 - [Make A Letter For Santa](https://c.gethopscotch.com/p/z4vdvkjqn) by HmJordan 1183 likes
@@ -1131,7 +1131,7 @@
 - [Brick Buster v1.4](https://c.gethopscotch.com/p/zusabdx4e) by BumpSplat Gaming. Co 1174 likes
 - [EMOJI PHOTO EDITOR 1](https://c.gethopscotch.com/p/zs2i5ammw) by MillieMacarøn 1174 likes
 - [Waves10 slight fade-out colouring](https://c.gethopscotch.com/p/yl5n5bax2) by t1 1173 likes
-- [🚪]( 🔒 & 🦑 Remix) by Squider?! https://c.gethopscotch.com/p/zplb7snec likes
+- [🚪, 🔒 & 🦑 Remix](https://c.gethopscotch.com/p/zplb7snec) by Squider?! 1172 likes
 - [RUN! [v2 BETA 1 Dimension]](https://c.gethopscotch.com/p/ygjoqq0q7) by MobCraft 1172 likes
 - [Guess The Number](https://c.gethopscotch.com/p/z3m3iz4gr) by MR.GAM3R🎮 1170 likes
 - [Hopscotch jersey maker](https://c.gethopscotch.com/p/yn1ra9ane) by Artists can code 1170 likes
@@ -1177,7 +1177,7 @@
 - [3D Character!](https://c.gethopscotch.com/p/102uvwhv3u) by Creations of a Noob 1123 likes
 - [Attack and defend  2D](https://c.gethopscotch.com/p/yrchbxnta) by Lamb face🐑 1123 likes
 - [Geometry dash](https://c.gethopscotch.com/p/ztd31ao7v) by Cat Joven YT 1122 likes
-- [ co.](Working Ukulele) by Decode https://c.gethopscotch.com/p/zu7g64uax likes
+- [Working Ukulele](https://c.gethopscotch.com/p/zu7g64uax) by Decode , co. 1121 likes
 - [TOUCAN GO 🔴](https://c.gethopscotch.com/p/y6fo0ei6l) by Montoya 1121 likes
 - [Sinous 3 (New Update)!](https://c.gethopscotch.com/p/y23unxk1z) by Zetax 1119 likes
 - [Happy Mother's Day!](https://c.gethopscotch.com/p/ypyrp88gi) by FearlessPhoenix 1118 likes
