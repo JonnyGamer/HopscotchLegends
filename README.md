@@ -21,7 +21,7 @@ MagmaPOP, Valgo⚡️⚡️⚡️, Creations of a Noob, -Madi-, My Name Ⅎ∩N�
 - **Total Likes by all others: 2,549,143 Likes!**
 
 So Unfortunately, when you split up your accounts, your score becomes lower.  
-For example: (Super Mario Mini Games + JonnyGamer = 12th)
+For example: (Super Mario Mini Games + JonnyGamer = 12th Position)
 
 
 ---
