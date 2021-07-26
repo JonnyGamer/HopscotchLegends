@@ -1022,7 +1022,7 @@ Please make a pull request if you wish to add on to this.
  - [Fuzzy Draw](https://c.gethopscotch.com/p/xim4mxtzc) - 3769
 226. DA-BEAST! (3766 Likes)
  - [Ghost?](https://c.gethopscotch.com/p/y90gdhhcx) - 2405
- - [The ;] Face](https://c.gethopscotch.com/p/y5tz407v7) - 1361
+ - [The ;\] Face](https://c.gethopscotch.com/p/y5tz407v7) - 1361
 227. The Crafty Painter (3763 Likes)
  - [Coaster Creator v0.0.5 Beta](https://c.gethopscotch.com/p/ykjbu8p32) - 1362
  - [Coaster Creator v0.1.0](https://c.gethopscotch.com/p/z70ltqdl7) - 1308
