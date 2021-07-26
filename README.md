@@ -23,6 +23,6 @@ MagmaPOP, Valgo⚡️⚡️⚡️, Creations of a Noob, -Madi-, My Name Ⅎ∩N�
 So Unfortunately, when you split up your accounts, your score becomes lower.  
 For example: (Super Mario Mini Games + JonnyGamer = 12th Position)
 
-See the complete [category list](https://github.com/JonnyGamer/HopscotchLegends/blob/main/CategorizedByCreator.md)
+See the complete [Top Hopscotch Creators List](https://github.com/JonnyGamer/HopscotchLegends/blob/main/CategorizedByCreator.md)
 
 ---
