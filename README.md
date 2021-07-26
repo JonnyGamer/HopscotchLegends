@@ -29,4 +29,4 @@ See the complete [Top Hopscotch Creators List](https://github.com/JonnyGamer/Hop
 
 # Reviews
 
-I'm going to be reviewing some of the best projects [here]
+I'm going to be [reviewing](https://github.com/JonnyGamer/HopscotchLegends/blob/main/GameReviews.md) some of the best projects.
