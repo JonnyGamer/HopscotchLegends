@@ -3,6 +3,8 @@ List of incredible projects
 
 Thanks to Petrichor, we have a [complete list](https://github.com/JonnyGamer/HopscotchLegends/blob/main/excellent.md) of all the projects with 1000+ likes (as of October, 10th, 2020)
 
+I found the [Agar.io](https://c.gethopscotch.com/p/xu0i2dzfd) Hopscotch game!
+
 Please make a pull request if you wish to add on to this.
 
 ---
