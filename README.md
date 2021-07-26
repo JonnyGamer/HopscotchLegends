@@ -405,11 +405,17 @@ Please make a pull request if you wish to add on to this.
  - [Easter Egg Hunt](https://c.gethopscotch.com/p/xvnjjow9z) - 4628
  - [Stickman Survival](https://c.gethopscotch.com/p/xx9ie617j) - 2907
  - [Hopscotch Forum](https://c.gethopscotch.com/p/xqqyvkk7r) - 1905
-45. Tori the Crafter 💛 (14001 Likes)
+45. SuperGirl3Acer (14074 Likes)
+ - [In the Garden](https://c.gethopscotch.com/p/y4ieivsch) - 3555
+ - [Windblade! (Sry, I've been reading a lot of Transformers Comics lately)](https://c.gethopscotch.com/p/y1elv7gjy) - 3500
+ - [To Someone45356: request done! 😊☺️](https://c.gethopscotch.com/p/yfc50yiqz) - 2455
+ - [Fire Emblem style?](https://c.gethopscotch.com/p/ydeyatjcd) - 2444
+ - [Fight scene](https://c.gethopscotch.com/p/yfkdy0yb2) - 2120
+46. Tori the Crafter 💛 (14001 Likes)
  - [Cooking Game 😋](https://c.gethopscotch.com/p/xs4f9erkb) - 8962
  - [#Challenge! Build a Robot 🤖](https://c.gethopscotch.com/p/xm365j22s) - 4027
  - [Star Girl's House! 🎀](https://c.gethopscotch.com/p/xf51y48m7) - 1012
-46. Intellection 74 (13755 Likes)
+47. Intellection 74 (13755 Likes)
  - [Note Pad-No Lag](https://c.gethopscotch.com/p/xtq214s1l) - 5046
  - [Don't Let 'Em Fall](https://c.gethopscotch.com/p/y67onm0ke) - 2542
  - [bullying hurts (animation)](https://c.gethopscotch.com/p/yvve37xq2) - 1598
@@ -417,28 +423,26 @@ Please make a pull request if you wish to add on to this.
  - [Planets ](https://c.gethopscotch.com/p/yl75ckuoz) - 1106
  - [Instant pixel tap](https://c.gethopscotch.com/p/yigf6ig7o) - 1083
  - [HS Character Trivia Quiz](https://c.gethopscotch.com/p/yff0p7wfo) - 1056
-47. randomowlsLC (13523 Likes)
+48. randomowlsLC (13523 Likes)
  - [Nyan Cat Animation!](https://c.gethopscotch.com/p/xsxma9nso) - 6181
  - [Bus Stop](https://c.gethopscotch.com/p/xqu3583p6) - 3495
  - [Doggo (it's been awhile)](https://c.gethopscotch.com/p/z1akxhy5j) - 2017
  - [Black Diamond!!](https://c.gethopscotch.com/p/ylo9ivj4y) - 1830
-48. TrevCoding (13354 Likes)
+49. TrevCoding (13354 Likes)
  - [Surgeon Simulator (Blood Clot)](https://c.gethopscotch.com/p/xne4rtjx6) - 5342
  - [Galaxy Rider v3 New Look and new point system](https://c.gethopscotch.com/p/xkofd8bsl) - 4898
  - [Mope.io](https://c.gethopscotch.com/p/ygf0ykyy2) - 2113
  - [Gravity's Pull (Beta Release) v1 Original Game : Tapping Challenge](https://c.gethopscotch.com/p/y34m6yk2h) - 1001
-49. iOG (13171 Likes)
+50. iOG (13171 Likes)
  - [Make Lemonade!](https://c.gethopscotch.com/p/10azohyo6s) - 5200
  - [Make Slime!](https://c.gethopscotch.com/p/zbmyywaw5) - 4108
  - [Gymnastics Simulator!](https://c.gethopscotch.com/p/zf18dzc1r) - 2167
  - [Make Burgers!](https://c.gethopscotch.com/p/zu4xjzn0q) - 1696
-50. OrangeScent (13156 Likes)
+51. OrangeScent (13156 Likes)
  - [Piggie Pad!](https://c.gethopscotch.com/p/xupwlztjl) - 4835
  - [Project](https://c.gethopscotch.com/p/xnnzrx6ts) - 3322
  - [#Relatable Short Series Soon](https://c.gethopscotch.com/p/xve9pxzl7) - 2655
  - [Leprechaun Leap!](https://c.gethopscotch.com/p/xvgpy30ws) - 2344
-51. AffableTornado (13062 Likes)
- - [Jeep Jump](https://c.gethopscotch.com/p/xargnlgmu) - 13062
 52. My_Pizza (13062 Likes)
  - [The Feather Painter!](https://c.gethopscotch.com/p/y4hrikmt2) - 2764
  - [Outfit Creator! (Fixed)](https://c.gethopscotch.com/p/yvdamvaz1) - 2324
@@ -448,19 +452,21 @@ Please make a pull request if you wish to add on to this.
  - [Dot Challenge Update](https://c.gethopscotch.com/p/z7o1b6h5s) - 1221
  - [Melting Trail Art!](https://c.gethopscotch.com/p/zcg6qi9et) - 1217
  - [Archers Pixel Art](https://c.gethopscotch.com/p/znkd1fnq1) - 1106
-53. jeff master 96 (13009 Likes)
+53. AffableTornado (13062 Likes)
+ - [Jeep Jump](https://c.gethopscotch.com/p/xargnlgmu) - 13062
+54. jeff master 96 (13009 Likes)
  - [Super robo world](https://c.gethopscotch.com/p/z8r0gprc5) - 6007
  - [Hopscotch karate V1.0](https://c.gethopscotch.com/p/z37tofr0b) - 2741
  - [Super robo maker v1.1](https://c.gethopscotch.com/p/za35nqa9m) - 2291
  - [New game (demo/beta)](https://c.gethopscotch.com/p/zcbse57ve) - 1970
-54. Sparkling_Glitter✨ (12769 Likes)
+55. Sparkling_Glitter✨ (12769 Likes)
  - [ESCAPE Part1](https://c.gethopscotch.com/p/xjawn2wqt) - 12769
-55. That one guy creations (12341 Likes)
+56. That one guy creations (12341 Likes)
  - [Tinted rainbow 3D draw](https://c.gethopscotch.com/p/yj6gywo63) - 4675
  - [RGB Sparkle Kaleidoscope ](https://c.gethopscotch.com/p/ye090pc1z) - 3212
  - [Cool morphing thing ](https://c.gethopscotch.com/p/ye3x2ctrc) - 2660
  - [Waves](https://c.gethopscotch.com/p/y7qj0w42g) - 1794
-56. JessieCA (12240 Likes)
+57. JessieCA (12240 Likes)
  - [Doodle Jump!](https://c.gethopscotch.com/p/zo4f9hlko) - 2902
  - [Counting Sheep (An Olym-pig Game)](https://c.gethopscotch.com/p/y6o8heqhq) - 1890
  - [Sugar Cookie Decorator!](https://c.gethopscotch.com/p/znzdljn7p) - 1633
@@ -469,56 +475,50 @@ Please make a pull request if you wish to add on to this.
  - [Christmas Tree Decorator 🌲](https://c.gethopscotch.com/p/z56qq9n6n) - 1409
  - [Happy Birthday]( Hopscotch!) - 0
  - [Spring Cookie Decorator!](https://c.gethopscotch.com/p/zdi16a61n) - 1291
-57. Kiwicute2013 (12108 Likes)
+58. Kiwicute2013 (12108 Likes)
  - [UP](https://c.gethopscotch.com/p/xw6poi7z6) - 4675
  - [Rio Olympics 🎉🎊](https://c.gethopscotch.com/p/y6001jpfv) - 2445
  - [Cat on the Wall](https://c.gethopscotch.com/p/yba6n7pw4) - 2173
  - [Geometry Dash Space Ship](https://c.gethopscotch.com/p/xi19x5zwi) - 1529
  - [Twisted waves with fish](https://c.gethopscotch.com/p/xidyit3co) - 1286
-58. Aster S. (11687 Likes)
+59. Aster S. (11687 Likes)
  - [⬅️Escape the Maze➡️](https://c.gethopscotch.com/p/xmi698nkb) - 11687
-59. Dolphin coders (11290 Likes)
+60. Dolphin coders (11290 Likes)
  - [Design your own trail art person! Beta 1.2](https://c.gethopscotch.com/p/z1487y1sh) - 4227
  - [Easter bunny pixel art :)](https://c.gethopscotch.com/p/ynr5dylwt) - 1958
  - [Cupcake pixel art!](https://c.gethopscotch.com/p/yitzj6nud) - 1438
  - [Delicious fruit pixel art!](https://c.gethopscotch.com/p/yguj4zqr0) - 1246
  - [Halloween Octo!! ](https://c.gethopscotch.com/p/z2mjkkq7h) - 1216
  - [Spring!](https://c.gethopscotch.com/p/z08mumc67) - 1205
-60. 44D3A7HQ (11253 Likes)
+61. 44D3A7HQ (11253 Likes)
  - [Actual paper](https://c.gethopscotch.com/p/yhndmvapt) - 4175
  - [✅Clover OS 5️⃣🖥](https://c.gethopscotch.com/p/z12bszcwr) - 3257
  - [3D forest](https://c.gethopscotch.com/p/1027pvm8bp) - 2695
  - [Clover OS BETA 1](https://c.gethopscotch.com/p/yio04hvl6) - 1126
-61. FrumpyEwok (11129 Likes)
+62. FrumpyEwok (11129 Likes)
  - [Third Date](https://c.gethopscotch.com/p/xiu8gvqyr) - 4590
  - [R.I.P. Harambe](https://c.gethopscotch.com/p/y770ysp5f) - 2395
  - [Second Date](https://c.gethopscotch.com/p/etbfpdx) - 2289
  - [First Date](https://c.gethopscotch.com/p/sshkd5m) - 1855
-62. SUPERSWAGGY88 (10894 Likes)
+63. SUPERSWAGGY88 (10894 Likes)
  - [Beach volleyball! You vs computer](https://c.gethopscotch.com/p/d7u5ubw) - 5090
  - [Pool physics (in progress)](https://c.gethopscotch.com/p/xlulh83mb) - 3024
  - [Tennis You vs Computer ](https://c.gethopscotch.com/p/k3gsv-q) - 2780
-63. Corvus (10871 Likes)
+64. Corvus (10871 Likes)
  - [Something I should've done 2 months ago…](https://c.gethopscotch.com/p/y21dxc2b3) - 4400
  - [Avoid the ▽・x・▽s!](https://c.gethopscotch.com/p/xqh6nanu2) - 2246
  - [Rememberance](https://c.gethopscotch.com/p/yctj1tatm) - 1876
  - [Rainin'](https://c.gethopscotch.com/p/yh8gdxzgg) - 1320
  - [NieR: Automata Machine](https://c.gethopscotch.com/p/yoyohun5g) - 1029
-64. Max C (10827 Likes)
+65. Max C (10827 Likes)
  - [The dot 2](https://c.gethopscotch.com/p/xmbyqi5id) - 10827
-65. A Climbing Coder [CC] (10611 Likes)
+66. A Climbing Coder [CC] (10611 Likes)
  - [Design a poké ball! v2](https://c.gethopscotch.com/p/y764i311c) - 2692
  - [Music Maker](https://c.gethopscotch.com/p/z8vzyk6gm) - 2112
  - [Raccoon Programmer!!](https://c.gethopscotch.com/p/xxpfirg05) - 1792
  - [Line graph creator](https://c.gethopscotch.com/p/y3p1wjwj7) - 1661
  - [Hoppy Squirrel!](https://c.gethopscotch.com/p/ya2l5il42) - 1279
  - [Monster game (ip)](https://c.gethopscotch.com/p/z4f4sl9va) - 1075
-66. SuperGirl3Acer (10574 Likes)
- - [In the Garden](https://c.gethopscotch.com/p/y4ieivsch) - 3555
- - [Windblade! (Sry]( I've been reading a lot of Transformers Comics lately)) - 0
- - [To Someone45356: request done! 😊☺️](https://c.gethopscotch.com/p/yfc50yiqz) - 2455
- - [Fire Emblem style?](https://c.gethopscotch.com/p/ydeyatjcd) - 2444
- - [Fight scene](https://c.gethopscotch.com/p/yfkdy0yb2) - 2120
 67. Jelimillabyte (10528 Likes)
  - [Archery range lvl3 V3.0](https://c.gethopscotch.com/p/xmzmgpy6d) - 5868
  - [Oven Break 2](https://c.gethopscotch.com/p/xnmzu730c) - 4660
@@ -943,11 +943,11 @@ Please make a pull request if you wish to add on to this.
  - [Orbal Hunter](https://c.gethopscotch.com/p/y7nybeknl) - 1112
 196. Queen152(off) (4332 Likes)
  - [Christmas Tree Decorator ](https://c.gethopscotch.com/p/xo2hegchp) - 4332
-197. CurvedGuitar (4283 Likes)
- - [Soccer Star! (2.0)](https://c.gethopscotch.com/p/xpyng9u0u) - 4283
-198. Spolarium (4283 Likes)
+197. Spolarium (4283 Likes)
  - [Tuber Simulator](https://c.gethopscotch.com/p/zh0iewxwb) - 2804
  - [Emoji Puzzles](https://c.gethopscotch.com/p/z5j4v2pff) - 1479
+198. CurvedGuitar (4283 Likes)
+ - [Soccer Star! (2.0)](https://c.gethopscotch.com/p/xpyng9u0u) - 4283
 199. VanillaOwl💛 (4242 Likes)
  - [Happy St. Patrick's Day!](https://c.gethopscotch.com/p/xvh348p9b) - 4242
 200. Star Girl Studios (4237 Likes)
@@ -1378,10 +1378,10 @@ Please make a pull request if you wish to add on to this.
  - [Connect 4](https://c.gethopscotch.com/p/ykix8z0qt) - 1997
 378. Candycane🍭 (1990 Likes)
  - [Finding Dory!](https://c.gethopscotch.com/p/y527i8mrk) - 1990
-379. sirfrankalot (1985 Likes)
- - [The Arcade](https://c.gethopscotch.com/p/yllid4c72) - 1985
-380. Splattered Ink (1985 Likes)
+379. Splattered Ink (1985 Likes)
  - [Animals](https://c.gethopscotch.com/p/yrremtejk) - 1985
+380. sirfrankalot (1985 Likes)
+ - [The Arcade](https://c.gethopscotch.com/p/yllid4c72) - 1985
 381. aarushi.is.dumb (1974 Likes)
  - [April Fools Pranks](https://c.gethopscotch.com/p/xwl9kxa3g) - 1974
 382. maddiecg (1972 Likes)
@@ -1448,14 +1448,14 @@ Please make a pull request if you wish to add on to this.
  - [River Escape ](https://c.gethopscotch.com/p/y5xg8hyqi) - 1800
 413. QWERTY studios (1800 Likes)
  - [Mining survivor (coming out in a while)](https://c.gethopscotch.com/p/xi1rxorcn) - 1800
-414. Supermoon39 (1795 Likes)
- - [Dodge 1.1](https://c.gethopscotch.com/p/xtvbxhbvl) - 1795
-415. Cupcakecoder12 (1795 Likes)
+414. Cupcakecoder12 (1795 Likes)
  - [Mission: Get candy from the store](https://c.gethopscotch.com/p/yvop6xpgo) - 1795
-416. MeowMeow22 (1788 Likes)
- - [Monkey Tapper Game](https://c.gethopscotch.com/p/xi86lo2l4) - 1788
-417. Mystical water (1788 Likes)
+415. Supermoon39 (1795 Likes)
+ - [Dodge 1.1](https://c.gethopscotch.com/p/xtvbxhbvl) - 1795
+416. Mystical water (1788 Likes)
  - [Cupcake is in half ](https://c.gethopscotch.com/p/xhx460i7o) - 1788
+417. MeowMeow22 (1788 Likes)
+ - [Monkey Tapper Game](https://c.gethopscotch.com/p/xi86lo2l4) - 1788
 418. BumpSplat (1781 Likes)
  - [Clash Royale 1.2](https://c.gethopscotch.com/p/zfjlb5ksg) - 1781
 419. Cookie Clicker Games (1778 Likes)
@@ -1528,10 +1528,10 @@ Please make a pull request if you wish to add on to this.
  - [PAC-RUN](https://c.gethopscotch.com/p/yjr9irvut) - 1628
 453. GoldenDunk (1622 Likes)
  - [Pepper In Peril](https://c.gethopscotch.com/p/xtfyixek2) - 1622
-454. RauanRauan (1612 Likes)
- - [Five Nights At Horse](https://c.gethopscotch.com/p/xi5ddvwhp) - 1612
-455. LazyPeppermint (1612 Likes)
+454. LazyPeppermint (1612 Likes)
  - [LeapBETA](https://c.gethopscotch.com/p/xyx5c8gz8) - 1612
+455. RauanRauan (1612 Likes)
+ - [Five Nights At Horse](https://c.gethopscotch.com/p/xi5ddvwhp) - 1612
 456. KillerCroc🐊 (1611 Likes)
  - [Ghost Simulater](https://c.gethopscotch.com/p/xicav1a8y) - 1611
 457. TwitchingFrench Fry🍟😋 (1610 Likes)
@@ -1636,10 +1636,10 @@ Please make a pull request if you wish to add on to this.
  - [Character Maker 1 \"Object Shows!\" UPDATED!](https://c.gethopscotch.com/p/zg7tqjq2m) - 1456
 507. caitlin2004🇦🇺 (1449 Likes)
  - [Head Styler!](https://c.gethopscotch.com/p/zerx5b6az) - 1449
-508. TheCrypto (1443 Likes)
- - [Super Bash Bros 2 BETA](https://c.gethopscotch.com/p/xht6fur30) - 1443
-509. Marvisia (1443 Likes)
+508. Marvisia (1443 Likes)
  - [Ultimate Cat Battle Pro 3.1](https://c.gethopscotch.com/p/yv3b8lhfo) - 1443
+509. TheCrypto (1443 Likes)
+ - [Super Bash Bros 2 BETA](https://c.gethopscotch.com/p/xht6fur30) - 1443
 510. AnimeNugget (1442 Likes)
  - [The Quest for Great Bear Lake: Chapter 1](https://c.gethopscotch.com/p/xhuq72x8n) - 1442
 511. Minecrator25 (1441 Likes)
@@ -1704,10 +1704,10 @@ Please make a pull request if you wish to add on to this.
  - [Invisible Drawing game! ](https://c.gethopscotch.com/p/ykridmhel) - 1339
 541. MeanGreenCodingMachine (1337 Likes)
  - [MISSION: Saving Hopscotch Level 2](https://c.gethopscotch.com/p/ze0ubivg6) - 1337
-542. Sander_Skovhus😋 (1330 Likes)
- - [Pixel art](https://c.gethopscotch.com/p/8d3odll) - 1330
-543. CricketLegend (1330 Likes)
+542. CricketLegend (1330 Likes)
  - [Cross Road](https://c.gethopscotch.com/p/zi0xv0hwo) - 1330
+543. Sander_Skovhus😋 (1330 Likes)
+ - [Pixel art](https://c.gethopscotch.com/p/8d3odll) - 1330
 544. nixi21 (1328 Likes)
  - [Random Logo Creator](https://c.gethopscotch.com/p/yqicjvzyl) - 1328
 545. UniqueTapioca OLD (1327 Likes)
@@ -1716,14 +1716,14 @@ Please make a pull request if you wish to add on to this.
  - [Hunting Simulator ](https://c.gethopscotch.com/p/yeu9bcuss) - 1324
 547. Google machine (1320 Likes)
  - [Blaster🔺.🔺dodge](https://c.gethopscotch.com/p/ydm5qbk34) - 1320
-548. A Coding Newbie (1317 Likes)
- - [Pet Care! ](https://c.gethopscotch.com/p/zrl720i92) - 1317
-549. MyPi (1317 Likes)
+548. MyPi (1317 Likes)
  - [Killer Cab V1.1](https://c.gethopscotch.com/p/z6lj9f4fb) - 1317
-550. 77Slayer77 (1316 Likes)
- - [DEATH COURSE 4!!!](https://c.gethopscotch.com/p/105w802hki) - 1316
-551. Liam.S (1316 Likes)
+549. A Coding Newbie (1317 Likes)
+ - [Pet Care! ](https://c.gethopscotch.com/p/zrl720i92) - 1317
+550. Liam.S (1316 Likes)
  - [ETCH-A-SKETCH ](https://c.gethopscotch.com/p/ydbiahqs3) - 1316
+551. 77Slayer77 (1316 Likes)
+ - [DEATH COURSE 4!!!](https://c.gethopscotch.com/p/105w802hki) - 1316
 552. Background (1314 Likes)
  - [HSB Background](https://c.gethopscotch.com/p/yhaknz0be) - 1314
 553. LuckilyCharmed (1312 Likes)
@@ -1742,12 +1742,12 @@ Please make a pull request if you wish to add on to this.
  - [Dog Vs Cat!](https://c.gethopscotch.com/p/yqv0irf3n) - 1297
 560. LuxuriousWave (1296 Likes)
  - [Make an Emoji!](https://c.gethopscotch.com/p/z38rsttud) - 1296
-561. Geekycat07😸🤓😸 (1289 Likes)
- - [Levels of Life! ](https://c.gethopscotch.com/p/zq06dqchk) - 1289
+561. Equiggzz (1289 Likes)
+ - [Croccer ](https://c.gethopscotch.com/p/ye3rl467a) - 1289
 562. TurquoiseCalypso (1289 Likes)
  - [Mood Spinner!!](https://c.gethopscotch.com/p/wwfre56) - 1289
-563. Equiggzz (1289 Likes)
- - [Croccer ](https://c.gethopscotch.com/p/ye3rl467a) - 1289
+563. Geekycat07😸🤓😸 (1289 Likes)
+ - [Levels of Life! ](https://c.gethopscotch.com/p/zq06dqchk) - 1289
 564. Master Programming (1286 Likes)
  - [Fire Tycoon v1.1](https://c.gethopscotch.com/p/y8uaz32ke) - 1286
 565. Cosine Studios (1285 Likes)
@@ -1800,10 +1800,10 @@ Please make a pull request if you wish to add on to this.
  - [Random color pad](https://c.gethopscotch.com/p/yuswhox2z) - 1221
 589. threefish🐠🐠🐠 (1220 Likes)
  - [Geometry Dash](https://c.gethopscotch.com/p/xcd6f5ytm) - 1220
-590. I-Team (1218 Likes)
- - [Climb Bamboo ](https://c.gethopscotch.com/p/y843qgo75) - 1218
-591. icedsickle (1218 Likes)
+590. icedsickle (1218 Likes)
  - [Happy Mother's Day(in advance)](https://c.gethopscotch.com/p/yptf9rmr3) - 1218
+591. I-Team (1218 Likes)
+ - [Climb Bamboo ](https://c.gethopscotch.com/p/y843qgo75) - 1218
 592. Violet Kitty (1216 Likes)
  - [My Virtual Baby!](https://c.gethopscotch.com/p/xhsup5yma) - 1216
 593. Tappee hopscotcher 283 (1213 Likes)
@@ -1860,12 +1860,12 @@ Please make a pull request if you wish to add on to this.
  - [Zookeeper](https://c.gethopscotch.com/p/ycnbdvpnz) - 1156
 619. LOROLOKO coding ツ (1154 Likes)
  - [Warp speed](https://c.gethopscotch.com/p/yf4j6u18p) - 1154
-620. DiabloDino™ (1154 Likes)
- - [NS2.0 .vs. DD](https://c.gethopscotch.com/p/y8nsbw54z) - 1154
-621. SharkyCoder (1154 Likes)
- - [Joystick Game 2.0!!!](https://c.gethopscotch.com/p/x8h1rwswn) - 1154
-622. Fuzzypants (1154 Likes)
+620. Fuzzypants (1154 Likes)
  - [Cute Hedgehog pixel art ](https://c.gethopscotch.com/p/ygelv7iai) - 1154
+621. DiabloDino™ (1154 Likes)
+ - [NS2.0 .vs. DD](https://c.gethopscotch.com/p/y8nsbw54z) - 1154
+622. SharkyCoder (1154 Likes)
+ - [Joystick Game 2.0!!!](https://c.gethopscotch.com/p/x8h1rwswn) - 1154
 623. cennia45 (1152 Likes)
  - [CenniaCookies!](https://c.gethopscotch.com/p/zfbbmi9vy) - 1152
 624. Cocoa1106 (1148 Likes)
