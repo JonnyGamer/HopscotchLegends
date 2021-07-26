@@ -19,6 +19,8 @@ MagmaPOP, Valgo⚡️⚡️⚡️, Creations of a Noob, -Madi-, My Name Ⅎ∩N�
 
 **Total Likes by the top 20: 1,032,900 Likes!**
 
+**Total Likes by all others: 2,549,143**
+
 ---
 
 # Categorized by Creator
