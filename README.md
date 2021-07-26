@@ -26,3 +26,7 @@ For example: (Super Mario Mini Games + JonnyGamer = 12th Position)
 See the complete [Top Hopscotch Creators List](https://github.com/JonnyGamer/HopscotchLegends/blob/main/CategorizedByCreator.md)
 
 ---
+
+# Reviews
+
+I'm going to be reviewing some of the best projects [here]
