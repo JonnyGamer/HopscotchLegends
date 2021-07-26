@@ -13,6 +13,14 @@ Please make a pull request if you wish to add on to this.
 
 ---
 
+# Top 20 Creators
+
+MagmaPOP, Valgo⚡️⚡️⚡️, Creations of a Noob, -Madi-, My Name Ⅎ∩Nʞ⅄ 9ᄐ, Axolotl, PurpleHawk, The Hopscotch Team, TheBest1Ever, BlastFusion, A Happy Coder 😀 Æ, Bananadog, I Shall Not Be Named, Game Coder, PhantomReporter, jeff3321🇳, DylanBarrett, Super Mario Mini Games, Crazy Crawfish, Awesome_E
+
+Total Likes by the top 20:
+
+---
+
 # Categorized by Creator
 
 1. MagmaPOP (141027 Likes)
