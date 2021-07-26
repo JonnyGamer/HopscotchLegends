@@ -18,7 +18,7 @@ Please make a pull request if you wish to add on to this.
 MagmaPOP, Valgo⚡️⚡️⚡️, Creations of a Noob, -Madi-, My Name Ⅎ∩Nʞ⅄ 9ᄐ, Axolotl, PurpleHawk, The Hopscotch Team, TheBest1Ever, BlastFusion, A Happy Coder 😀 Æ, Bananadog, I Shall Not Be Named, Game Coder, PhantomReporter, jeff3321🇳🇱, DylanBarrett, Super Mario Mini Games, Crazy Crawfish, Awesome_E
 
 - **Total Likes by the top 20: 1,032,900 Likes!**
-- **Total Likes by all others: 2,549,143 Likes**
+- **Total Likes by all others: 2,549,143 Likes!**
 
 ---
 
